@@ -1,0 +1,2 @@
+# GMS-GM48-37-InfernalWyrm
+ This was my entry for the 37th GM48, which was centered on a vague and cryptic, moody "cell" which works its way within a host's body. Very experimental and weird. Didn't fare too well in the ratings but I had a great time with it regardless, it's a vast improvement to my past entries in a lot of ways even if it obviously has flaws. Perfectly happy with it for being made in 48 hours, there is more content here than it appears. 
